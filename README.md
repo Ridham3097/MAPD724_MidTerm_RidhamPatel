@@ -1,8 +1,1 @@
-# MAPD724_MidTerm_RidhamPatel
-# MAPD724_MidTerm_RidhamPatel
-# MAPD724_MidTerm_RidhamPatel
-# MAPD724_MidTerm_RidhamPatel
-# MAPD724_MidTerm_RidhamPatel
-# MAPD724_Midterm_RidhamPatel
-# MAPD724_Midterm_RidhamPatel
-# MAPD724_Midterm_RidhamPatel
+
